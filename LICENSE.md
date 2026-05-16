@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows exclusive Transition: multi-cam-editing & batch-processing offers the most advanced DaVinci Resolve for PC | DaVinci Resolve
 
 
 
